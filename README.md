@@ -32,7 +32,7 @@ B.Sc. BZCS graduate from Telangana, India
 **Phase 2:** Google, Microsoft, Amazon, Meta
 
 ## 📞 Contact
-- **Email:** macharakesh00@gmail.com
-- **LinkedIn:** www.linkedin.com/in/rakesh-macha-110794374
+- **Email:** madhumithasureshkumar999@gmail.com
+- **LinkedIn:** www.linkedin.com/in/madhumitha-suresh-kumar-b91ab5374
 - **Location:** Hyderabad, Telangana# 60-day-AI-DSA-Journey
 MASTERING AI SKILLS
